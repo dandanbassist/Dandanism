@@ -4,6 +4,8 @@
 
 Dandanism: the doctrine of empathy to everyone — including yourself.
 
+Website: https://medium.com/@dandan84817/dandanism-5b2190def503?postPublishedType=initial
+
 ## Manifesto (example)
 
 Dandanism is a practice and philosophy centered on extending empathy and kindness outward — and inward. It encourages:
